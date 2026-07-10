@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **gudemsaivamshi2001@gmail.com**
 
-- 📄 Know about my experiences [7 months as SDE](7 months as SDE)
+- 📄 Know about my experiences [2 years as AI ENGINEER].
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
